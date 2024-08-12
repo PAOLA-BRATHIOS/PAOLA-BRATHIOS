@@ -5,6 +5,6 @@ Oii Meu Nome é **Paola** 🖤
 -Procuro a colaborar em ajudar as Pessoas
 -como entrar em contato comigo: por telefone
 -pronomes: Paola Nunes ou Brathios
--Curiosidades:Gosto muito de doramas e gosto muito de cozinhar
+-Curiosidades: Gosto muito de doramas e gosto muito de cozinhar
 -Meu projeto de vida é ser professora✍️
 ![](https://media.tenor.com/hW_mTYy_zS4AAAAi/gojo-satoru.gif)
